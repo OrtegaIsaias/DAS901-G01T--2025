@@ -10,8 +10,9 @@ Proyecto Fase 1
 •   Frank Alberto Hernández Silva HS171707
 •   Isaias Alexander Ortega Monterrosa OM161293
 
-LINK DE TRELLO:
-
+LINK DE TRELLO: 
+https://trello.com/invite/b/6805afb800898dc550fa0ac7/ATTI3e33f8b8cc810f668a6095b6ef8a846a7B8DB7A5/das-proyecto
+https://drive.google.com/drive/folders/1Ty-1APfWWSt3V7XHefDx43LxWxozyHZM?usp=sharing
 
 DISEÑO Y MOCKUPS:
 
